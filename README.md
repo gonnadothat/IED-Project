@@ -7,4 +7,4 @@ Our webpage-- https://ishan-sharma.wixsite.com/iedproject
 My teammates:
 Saksham Dhull (@saksham1210)
 Vrinda Singhal (@singha373)
-Himanshu Vashisht (@          )
+Himanshu Vashisht (@lifeislikethisonly)
